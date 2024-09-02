@@ -28,7 +28,7 @@ I'm dedicated to driving progress in:
 ## 📫 Let's Connect
 
 - [LinkedIn](https://www.linkedin.com/in/grace-nzambi-b10272220)
-- [Email](gracenzambi52@gmail.com)
+- [Email](mailto:gracenzambi52@gmail.com)
 
 ---
 
